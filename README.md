@@ -3,7 +3,8 @@
 - 🌱 Estamos continuamente aprendiendo de diferentes personajes y herramientas de LAtam,
 - 📫 Nuestra meta es aprender, enseñar, enfocar a pequeñas empresas y personas a ser mas Ciberseguros.
 
-Siguenos en nuestras redes:
+Apoyanos con un tintico (cafe en colombia)
+https://www.buymeacoffee.com/ciberseguro
 
 
 
